@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @amritatheartist
+- 👋 Hi, I’m @nightfurytech
 - 👀 I’m interested in learning new tools and technologies
 - 📫 How to reach me : amrita.j.das@gmail.com and https://www.linkedin.com/in/amrita-j-das/
 - 😄 Pronouns: She/her
